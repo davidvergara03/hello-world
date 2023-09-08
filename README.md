@@ -1,1 +1,1 @@
-# hello-world
+I would like to reinforce the topics I already know and especially to be able to apply everything I have learned both here and in my country through a job. For which I am quite encouraged and inspired to give my best.
